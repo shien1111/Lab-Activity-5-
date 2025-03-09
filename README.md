@@ -1,1 +1,5 @@
 # Lab-Activity-5-
+AGE GROUP HOW TO CLASSIFY AN INDIVIDUALS AGE GROUP
+
+VIDEO OF AGE GROUP 
+https://youtu.be/8PdpG_2l1hE?si=KWtB3c3l520gxtXA
